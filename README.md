@@ -6,7 +6,7 @@
   
 
 
-$\small\textcolor{#EEA7C2}{\textsf{╰┈➤ㅤBibi ‎ꫂ᭪݁  bunny queen ♡ㅤㅤᶻ 𝗓 𐰁  ㅤㅤtaken lesbian   (˶>⩊<˶) ㅤ ⋆˚✿˖°ㅤ basic DNI, INT all time !!   i swear i¨m friendly  ૮ ․ ․ ྀིაㅤ ㅤ◞}}$
+$\small\textcolor{#000000}{\textsf{╰┈➤ㅤBibi ‎ꫂ᭪݁  bunny queen ♡ㅤㅤᶻ 𝗓 𐰁  ㅤㅤtaken lesbian   (˶>⩊<˶) ㅤ ⋆˚✿˖°ㅤ basic DNI, INT all time !!   i swear i¨m friendly  ૮ ․ ․ ྀིაㅤ ㅤ◞}}$
 
 𐙚ㅤIrl mizi ༄.°  minor ♡ㅤㅤ₍^. .^₎⟆  ㅤㅤask 4 socials!! ⋆˙⟡ㅤ ALNST fandom ˚.🦴 ᵎᵎ  mostly with friends or alone  𐔌՞. .՞𐦯ㅤ◞
 
