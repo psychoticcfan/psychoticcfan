@@ -6,9 +6,9 @@
   
 
 
-$\small\textcolor{#000000}{\textsf{╰┈➤ㅤBibi ‎ꫂ᭪݁  bunny queen ♡ㅤㅤᶻ 𝗓 𐰁  ㅤㅤtaken lesbian   (˶>⩊<˶) ㅤ ⋆˚✿˖°ㅤ basic DNI, INT all time !!   i swear i¨m friendly  ૮ ․ ․ ྀིაㅤ ㅤ◞}}$
+$\small\textcolor{#000000}{\textsf{﹐‧゛﹕﹒〃ㅤBibi ‎ꫂ᭪݁  hachi ♡ㅤㅤᶻ 𝗓 𐰁  ㅤfriendly asf! (..◜ᴗ◝..)ㅤ ⋆˚✿˖°ㅤ basic DNI, INT all time !!  may be shy at first ..  ˙𐃷˙ㅤ ㅤ◞}}$
 
-𐙚ㅤIrl mizi ༄.°  minor ♡ㅤㅤ₍^. .^₎⟆  ㅤㅤask 4 socials!! ⋆˙⟡ㅤ ALNST fandom ˚.🦴 ᵎᵎ  mostly with friends or alone  𐔌՞. .՞𐦯ㅤ◞
+𐙚ㅤIrl Mizi nd Hachi ༄.°  🍓ㅤㅤ₍^. .^₎⟆  ㅤㅤask 4 socials!! ⋆˙⟡ㅤ ˚.🦴 ᵎᵎ  mostly with friends or alone  𐔌՞. .՞𐦯ㅤ◞
 
 <img src=https://64.media.tumblr.com/e4ba310519c7627ca7b62cfdef088b70/fb8fb18463973d1c-bb/s400x600/623ef617b1eec0125b46914e7bcb54a5d1512952.pnj width="100%"/>
 
